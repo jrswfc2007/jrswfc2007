@@ -1,0 +1,6 @@
+- Hi, I’m @jrswfc2007
+- I’m interested in learning to create websites within websis
+- I’m currently learning how to code in replit
+- I’m looking to collaborate on making cool software and learning stuff
+  - if your interested email me at stevenjrprice01@gmail.com
+   -  Pronouns: he/him
